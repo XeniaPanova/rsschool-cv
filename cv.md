@@ -16,7 +16,7 @@
 
 ***Brief information about yourself***
 
-*Work experience:*
+**Work experience:**
 
 November 2016 - current 
 
@@ -43,3 +43,44 @@ Limited Liability Company “Rocla RUS”
     -fuel calculation
     
     -subsistence allowance reports
+    
+ **Education:**
+ 
+ September 2010 – August 2016 
+                
+   * St.Petersburg State Polytechnical University,
+   St. Petersburg( Russia)               
+   International Graduate School of management
+   Economist
+
+ September 2012 –  February 2013 
+ 
+   * Technical University of Applied Science Wildau, 
+   Wildau(Germany)
+   European Management
+
+ April 2013
+ 
+   * “Sustainable Dimension in Business  Cooperation”
+    St.Petersburg State Polytechnical University
+    Certificate West Finland First Intensive  Programme
+
+
+**Personal skills:**
+
+    * good communication skills
+    * outgoing and friendly
+    * team-leading skills
+    * aspiration for new knowledge
+    * organizational skills
+    * responsibility
+    * punctuality
+    * mentoring skills
+    * English -B1 level
+    * German -Basic user
+    
+ 
+    
+
+  
+  
